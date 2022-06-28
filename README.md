@@ -9,3 +9,4 @@ How to reach me:
 - 📫 elois.mandotti.26@gmail.com
 - 🎈 Elois Mandotti (Linkedin🤫)
 - 😄 Pronouns: she/her
+- 🏳️‍🌈
