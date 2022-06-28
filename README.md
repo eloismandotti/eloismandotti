@@ -9,5 +9,5 @@ How to reach me:
 - 📫 elois.mandotti.26@gmail.com
 - 🎈 Elois Mandotti (Linkedin🤫)
 - 😄 Pronouns: she/her 🌈
-- 🍄 Some of my interests: I'm a huge fan of horror movies, i love rain, cats and i kinda wish that i was one of Tim Burton's movies characters.
+- ⚡ Some of my interests: I'm a huge fan of horror movies, i love rain, cats and i kinda wish that i was one of Tim Burton's movies characters.
 
